@@ -1,4 +1,4 @@
-## Examining the Impacts of COVID-19 Pandemic Response on the Work of LIS Professionals 
+## Examining the Impacts of COVID-19 Pandemic Response on the Work of Archivists and LIS Professionals 
 ### Initial Project Description
 
 This project will focus on the impact of the COVID-19 pandemic on the work and careers of information professionals, specifically archivists and academic librarians. Research in the immediate aftermath of COVID has primarily focused on the pandemic’s effect on institutions, rather than individuals. The primary research question aims to investigate the relationship between pre-existing archives and library labor issues and COVID-era changes. Has the pandemic amplified challenges that LIS professionals were already facing in their individual careers? Such changes might be evidenced by frequently-evolving job descriptions, funding issues, and a lack of professional development and capacity building opportunities. Some of the initial research questions include:
